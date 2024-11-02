@@ -11,5 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with writing "Hello World" in all programming languages🤌
 - 💬 Ask me about ...
 - 📫 How to reach me: U can reach me in Discord - @ytikaryshka or Telegram - @ytikaryshka413
-- ⚡ Fun fact: SOSAL? - Da
+- 🧑‍💻 Pronouns: SHE/HE
+- ⚡ Fun fact: FemBoy; Femenist; SOSAL? - Da.
 -->
